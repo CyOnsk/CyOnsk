@@ -19,12 +19,8 @@
 ###
 
 <h1 align="center">💙 Hey Stalker! 👋</h1>ʚ 🐳 • ₊˚✧ . ・
-💙；Hey Stalker ! ﹒ zᶻ
-🌌 [He/Him]┆ [Bisexual]┆[Scorpio]┆ ılıl 🎣
-🚎 Feel free to chat
- 🌌 18+ or older ] ☆ ₊ 📘 
-🐬・[Do not follow]｜🌊
-₊˚ʚ 🧢 ₊ ✧ ﾟ. 
+
+
 
 ###
 
