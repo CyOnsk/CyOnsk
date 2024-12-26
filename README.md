@@ -18,7 +18,7 @@
 
 ###
 
-<h1 align="center">💙 Hey Stalker! 👋</h1>ʚ 🐳 • ₊˚✧ . ・
+<h1 align="center">💙 Hey Stalker! 👋</h1>
 
 
 
