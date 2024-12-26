@@ -18,7 +18,7 @@
 
 ###
 
-<h1 align="center">hey there 👋</h1>ʚ 🐳 • ₊˚✧ . ・
+<h1 align="center">💙；Hey Stalker! zᶻ 👋</h1>ʚ 🐳 • ₊˚✧ . ・
 💙；Hey Stalker ! ﹒ zᶻ
 🌌 [He/Him]┆ [Bisexual]┆[Scorpio]┆ ılıl 🎣
 🚎 Feel free to chat
