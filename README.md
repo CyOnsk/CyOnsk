@@ -18,7 +18,7 @@
 
 ###
 
-<h1 align="center">💙 Hey Stalker! 👋</h1>
+<h1 align="center"> Hey Stalker! 👋</h1>
 
 
 
@@ -28,7 +28,7 @@
 
 ###
 
-<p align="left">I'm  from UK <br><br>- I’m working as Trader
+<p align="left">I'm from UK <br><br> I’m working as Trader
 
 ###
 
