@@ -28,11 +28,11 @@
 
 ###
 
-<p align="left">I'm  from UK <br><br>- 🔭 I’m working as Trader
+<p align="left">I'm  from UK <br><br>- I’m working as Trader
 
 ###
 
-<h3 align="left">🛠 Language and tools</h3>
+<h3 align="left"></h3>
 
 ###
 
